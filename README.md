@@ -29,4 +29,4 @@ Olá! Sou Bruno Correia, uma mente inquieta e apaixonada por desafios. Nasci e c
 
 ## **Encerramento**
 
-Estou animado para conectar com mentes criativas e explorar oportunidades emocionantes. Se você compartilha interesses similares ou tem ideias para colaboração, não hesite em me contatar. Vamos juntos transformar desafios em conquistas significativas. Estou ansioso para as possibilidades que o futuro reserva! 🚀✨
+Estou animado para conectar com mentes criativas e explorar oportunidades emocionantes. Se você compartilha interesses similares ou tem ideias para colaboração, não hesite em me contatar. Vamos juntos transformar desafios em conquistas significativas. Estou ansioso para as possibilidades que o futuro reserva! 🚀✨ !
